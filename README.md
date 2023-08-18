@@ -1,1 +1,2 @@
 <p><a href="https://rajbet-movies.in">Rajbet Movies Download</a> 300MB Movies, 480p, 720p, Movies, Dual Audio Movies,1080p Movies, &amp; Web Series, Amazon Prime, ALT Balaji, ZEE5 ,Netflix WEB Series etc.</p>
+<p><a href="https://rajbet-movies.in">Rajbet Movies </a>is a Popular movie and web series downloading portal of Hollywood and Bollywood movies. and provide direct download link such as 1080p,720p, and 480p Dual Audio In English and Hindi.</p>
